@@ -25,7 +25,7 @@ customers.
 
 EMAIL:
 
-<Meheiddineitani123@outlook.com>
+<muhieddineitani04@gmail.com>
 
 ▪ Working closely with loss adjusters and clients and negotiated settlements to
 
